@@ -1,0 +1,3 @@
+This realm was sealed off almost as soon as it was opened. Through the elves keen sense of magic, this realm contains by far the strongest beings. 
+
+When first opened, the dragons quickly overwhelmed the [[Realm of Humanity]] causing destruction, rivalling that of the great war, in mere hours. The gate was sealed off, as it was not known how to fully close it. Access to the gate is strictly forbidden.
